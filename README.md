@@ -1,2 +1,6 @@
 # hello-boss
 My boss is great
+
+I am god and God is great...
+
+Be cool...
